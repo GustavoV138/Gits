@@ -1,3 +1,0 @@
-# Alterando
-
-## HAHaHAHAHAHAHAHAHA
